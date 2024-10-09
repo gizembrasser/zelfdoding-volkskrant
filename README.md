@@ -1,0 +1,1 @@
+Artikel: https://www.volkskrant.nl/buitenland/zelfdodingscapsule-zelfdoding-met-hulp-komt-steeds-vaker-voor-in-zwitserland~be2fc592/
